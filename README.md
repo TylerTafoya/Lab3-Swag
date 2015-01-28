@@ -3,3 +3,5 @@ This is my Lab3 repo!!!!!
 Tyler Tafoya 
 Lab3
 new edits 
+Partner: Annie Kelly (was here) 
+
